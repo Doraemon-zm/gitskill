@@ -1,3 +1,4 @@
 this is harf project
-scott insert the oracle world
+scott is the real boss 
+scott's wrords are all right
 
